@@ -1,9 +1,3 @@
-# Cybersecurity
-
-Every code is explained and associated with a video in my youtube channel.
-Please subscribe if you like the contain.
-
-https://www.youtube.com/channel/UCuYFfS2KuCAiNAOg5JBL1Ig?view_as=subscriber
 
 
                           |"|                         !!!         |              _   _    
